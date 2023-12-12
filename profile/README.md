@@ -1,1 +1,1 @@
-# We will be right back!
+# Will be ready soon!
